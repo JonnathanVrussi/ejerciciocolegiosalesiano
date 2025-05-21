@@ -1,4 +1,6 @@
 gracias por leerme
 denada
-vuelvapronto
+vuelva pronto
 bueno mañana
+mañana no puedo
+tengo reunion importante
