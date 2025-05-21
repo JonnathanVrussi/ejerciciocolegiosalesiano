@@ -4,3 +4,4 @@ vuelva pronto
 bueno mañana
 mañana no puedo
 tengo reunion importante
+bueno pasado entonces
